@@ -1,2 +1,2 @@
 # VeryProPlayer.github.io
-yes.
+The Alpha and the Omega.
